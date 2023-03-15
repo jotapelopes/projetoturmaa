@@ -23,6 +23,6 @@ EMAIL - 777
 
 - Fã n. 1 da The NBHD
 
-- putinha minha
+- minha puta 
 
 - Flamenguista

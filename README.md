@@ -1,5 +1,14 @@
 # Amanda
 
+## Dados Pessoais:
+
+CPF: 777-666
+
+RG: 666
+
+EMAIL - 777
+
+
 ## Experiência:
 
 - Garota de programa
